@@ -18,6 +18,7 @@ creating session materials and lead sheets; engineering the record sessions with
 I look forward to creating exhilarating music and sound design for Valicy.
 
 
+
 Regards,
 
 Glen Tarachow

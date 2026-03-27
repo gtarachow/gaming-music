@@ -1,6 +1,7 @@
 Listen to my latest work here: [Gaming Music Portfolio](https://github.com/gtarachow/gaming-music)
 
 [![Fisher-Price DJ Bouncin’ Beats Portfolio](https://img.youtube.com/vi/rTlWg9WlHho/0.jpg)](https://www.youtube.com/watch?v=rTlWg9WlHho)
+
 *Composer & Sound Designer for DJ Bouncin’ Beats (Fisher-Price)*
 
 
@@ -14,9 +15,7 @@ I have also done the music for Mercedes-Benz, Nicoderm CQ, and Pip Printing TV c
 
 My audio expertise was developed as I worked my way up to the staff engineer/assistant engineer position at legendary New York City recording studio Sound On Sound.
 
-Eventually leaving to go freelance, I mastered every phase of the music production pipeline - pre-production and initial demos shown to clients; choosing, auditioning and pitching vocal talent selections to the producers;
-
-creating session materials and lead sheets; engineering the record sessions with the talent; conducting orchestral sessions when required; and finally mixing and mastering to the LUFS Loudness Standards.
+Eventually leaving to go freelance, I mastered every phase of the music production pipeline - pre-production and initial demos shown to clients; choosing, auditioning and pitching vocal talent selections to the producers; creating session materials and lead sheets; engineering the record sessions with the talent; conducting orchestral sessions when required; and finally mixing and mastering to the LUFS Loudness Standards.
 
 I look forward to creating exhilarating music and sound design for Valicy.
 

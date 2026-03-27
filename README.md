@@ -1,5 +1,8 @@
 Listen to my latest work here: [Gaming Music Portfolio](https://github.com/gtarachow/gaming-music)
 
+[![Fisher-Price DJ Bouncin’ Beats Portfolio](https://img.youtube.com/vi/rTlWg9WlHho/0.jpg)](https://www.youtube.com/watch?v=rTlWg9WlHho)
+*Composer & Sound Designer for DJ Bouncin’ Beats (Fisher-Price)*
+
 
 Dear Audio Director,
 
